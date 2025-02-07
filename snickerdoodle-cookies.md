@@ -1,4 +1,4 @@
-# Snickerdoodle Recipe
+# Snickerdoodle Cookies
 
 ## Ingredients:
 - 1 3/8 cups all-purpose flour
