@@ -5,13 +5,17 @@
 - 3/4 teaspoon baking powder
 - 1/4 teaspoon salt
 - 1 teaspoon cream of tartar
-- 1/2 cup unsalted butter, softened
+- 1/2 cup butter (1 stick), softened
 - 3/4 cup granulated sugar
 - 1 large egg
-- 1/2 teaspoon vanilla extract
-- 1 1/2 tablespoons granulated sugar (for rolling)
-- 1 teaspoon ground cinnamon (for dry ingredients)
-- 1 teaspoon ground cinnamon (for rolling)
+- 1 teaspoon vanilla extract
+- 1 teaspoon ground cinnamon
+- 1/2 teaspoon ground cardamom
+
+### Spice Mix for Rolling:
+- 1 1/2 tablespoons granulated sugar 
+- 1 teaspoon ground cinnamon 
+- 1/2 teaspoon ground cardamom 
 
 ## Instructions:
 
