@@ -13,7 +13,7 @@
 - 1/2 teaspoon ground cardamom
 
 ### Spice Mix for Rolling:
-- 1 1/2 tablespoons granulated sugar 
+- 1 1/2 tablespoons raw sugar 
 - 1 teaspoon ground cinnamon 
 - 1/2 teaspoon ground cardamom 
 
@@ -38,5 +38,9 @@
 9. **Bake**: Bake for 10-12 minutes, or until the edges are golden, but the centers are still soft.
 
 10. **Cool**: Let the cookies cool on the baking sheet for a couple of minutes before transferring them to a wire rack to cool completely.
+
+### Air Fryer Instructions
+
+- **Preheat** your air fryer to 325°F and bake for 7-10 minutes.
 
 Enjoy your snickerdoodles!
